@@ -1,1 +1,0 @@
-# landscaping-template-v3
